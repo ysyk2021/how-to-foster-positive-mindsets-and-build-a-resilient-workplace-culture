@@ -1,4 +1,3 @@
-# Conclusion
 
 In this book, we've explored the importance of fostering positive mindsets and building a resilient workplace culture. We've discussed what positive mindsets are, why they're important in the workplace, and strategies for developing them among team members. We've also explored what a resilient workplace culture is, why it's important, and how to incorporate positive mindsets and resilience into company policies and practices.
 

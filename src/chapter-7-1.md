@@ -1,5 +1,3 @@
-Overview of promoting collaboration and teamwork in a resilient workplace culture
-==================================================================================================================================
 
 Promoting collaboration and teamwork is essential for building a resilient workplace culture. In this chapter, we will provide an overview of promoting collaboration and teamwork in a resilient workplace culture.
 

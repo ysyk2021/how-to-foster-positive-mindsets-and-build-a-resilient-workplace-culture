@@ -1,5 +1,3 @@
-Chapter 2: Understanding Positive Mindsets
-==========================================
 
 Understanding positive mindsets is essential for building a resilient workplace culture. In this chapter, we'll explore the definition of positive mindsets, as well as the benefits of cultivating these attitudes for employees and the organization.
 

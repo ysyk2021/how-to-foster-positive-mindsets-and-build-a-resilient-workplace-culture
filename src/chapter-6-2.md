@@ -1,5 +1,3 @@
-Techniques for promoting empathy and compassion within the organization
-======================================================================================================================
 
 Encouraging empathy and compassion is essential for building a resilient workplace culture. In this chapter, we'll explore techniques for promoting empathy and compassion within the organization.
 

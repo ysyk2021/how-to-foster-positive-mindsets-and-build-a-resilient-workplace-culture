@@ -1,5 +1,3 @@
-Techniques for cultivating a positive work environment
-======================================================================================================
 
 Practicing gratitude and positivity is essential for building a resilient workplace culture. In this chapter, we will discuss techniques for cultivating a positive work environment through the practice of gratitude and positivity.
 

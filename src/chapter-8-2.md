@@ -1,5 +1,3 @@
-Techniques for promoting innovation and creativity among team members
-=====================================================================================================================
 
 Innovation and creativity are essential components of a positive workplace culture. In this chapter, we will discuss techniques for promoting innovation and creativity among team members.
 

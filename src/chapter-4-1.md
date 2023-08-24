@@ -1,5 +1,3 @@
-Importance of practicing gratitude and positivity in the workplace
-==================================================================================================================
 
 Practicing gratitude and positivity is essential for building a resilient workplace culture. In this chapter, we will discuss the importance of practicing gratitude and positivity in the workplace.
 

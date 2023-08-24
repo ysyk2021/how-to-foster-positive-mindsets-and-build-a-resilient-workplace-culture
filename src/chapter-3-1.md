@@ -1,5 +1,3 @@
-Overview of developing a growth mindset
-===============================================================================
 
 Developing a growth mindset is a key component of fostering positive mindsets and building a resilient workplace culture. In this chapter, we'll explore what a growth mindset is, why it's important, and how to develop one.
 

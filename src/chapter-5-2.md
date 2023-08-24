@@ -1,5 +1,3 @@
-Strategies for building resilience and managing stress and adversity
-===============================================================================================================================
 
 Building resilience and coping with challenges is essential for navigating the ups and downs of the workplace. In this chapter, we'll explore strategies for building resilience and managing stress and adversity in the workplace.
 

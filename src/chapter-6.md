@@ -1,5 +1,3 @@
-Chapter 6: Encouraging Empathy and Compassion
-=============================================
 
 Encouraging empathy and compassion is essential for building a resilient workplace culture. In this chapter, we'll explore the importance of empathy and compassion in fostering a resilient workplace culture, as well as techniques for promoting these attitudes within the organization.
 

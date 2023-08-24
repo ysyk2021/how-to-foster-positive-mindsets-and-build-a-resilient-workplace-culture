@@ -1,5 +1,3 @@
-Creating a roadmap for fostering positive mindsets and building a resilient workplace culture
-=======================================================================================================================================================
 
 Creating a culture of positivity and resilience in the workplace requires a clear implementation strategy that is supported by all members of the organization. In this chapter, we will discuss how to create a roadmap for implementing these changes and ensuring they are sustainable.
 

@@ -1,5 +1,3 @@
-Common obstacles to building a resilient workplace culture
-======================================================================================================================================
 
 Building a resilient workplace culture is not without its challenges. In this chapter, we will discuss the most common obstacles to building a resilient workplace culture.
 

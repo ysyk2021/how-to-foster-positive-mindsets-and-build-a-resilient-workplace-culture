@@ -1,5 +1,3 @@
-Chapter 4: Practicing Gratitude and Positivity
-==============================================
 
 Practicing gratitude and positivity is essential for building a resilient workplace culture. In this chapter, we'll explore the importance of practicing gratitude and positivity in the workplace, as well as techniques for cultivating a positive work environment.
 

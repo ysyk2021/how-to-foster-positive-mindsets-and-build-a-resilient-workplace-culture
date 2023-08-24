@@ -1,5 +1,3 @@
-Strategies for promoting collaboration and teamwork among team members
-=======================================================================================================================
 
 Promoting collaboration and teamwork is essential for building a resilient workplace culture. In this chapter, we will discuss strategies for promoting collaboration and teamwork among team members.
 

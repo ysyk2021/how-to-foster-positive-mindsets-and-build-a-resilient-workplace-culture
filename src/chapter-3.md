@@ -1,5 +1,3 @@
-Chapter 3: Developing a Growth Mindset
-======================================
 
 Developing a growth mindset is essential for building a resilient workplace culture. In this chapter, we'll explore an overview of developing a growth mindset, as well as strategies for developing this attitude among team members.
 

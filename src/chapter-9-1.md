@@ -1,5 +1,3 @@
-Importance of incorporating positive mindsets and resilience into company policies and practices
-===============================================================================================================================================================================================
 
 Incorporating positive mindsets and resilience into company policies and practices is essential for building a resilient workplace culture. In this chapter, we'll explore why it's important to integrate positive mindsets and resilience into company policies and practices, and how to do so effectively.
 

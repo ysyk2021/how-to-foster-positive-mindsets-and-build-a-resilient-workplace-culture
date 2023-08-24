@@ -1,5 +1,3 @@
-Chapter 7: Promoting Collaboration and Teamwork
-===============================================
 
 Promoting collaboration and teamwork is essential for building a resilient workplace culture. In this chapter, we'll explore an overview of promoting collaboration and teamwork in a resilient workplace culture, as well as strategies for promoting these attitudes among team members.
 

@@ -1,5 +1,3 @@
-Chapter 8: Fostering Innovation and Creativity
-==============================================
 
 Fostering innovation and creativity is essential for building a resilient workplace culture. In this chapter, we'll explore the importance of fostering innovation and creativity in a resilient workplace culture, as well as techniques for promoting these attitudes among team members.
 

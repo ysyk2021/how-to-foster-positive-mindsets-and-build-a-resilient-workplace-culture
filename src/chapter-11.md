@@ -1,5 +1,3 @@
-Chapter 11: Implementation Strategies for Lasting Change
-========================================================
 
 Implementing strategies for fostering positive mindsets and building a resilient workplace culture requires intentional effort and commitment from leaders and team members alike. In this chapter, we'll explore implementation strategies for creating lasting change.
 

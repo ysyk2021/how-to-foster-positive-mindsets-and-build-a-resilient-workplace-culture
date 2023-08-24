@@ -1,5 +1,3 @@
-Chapter 9: Incorporating Positive Mindsets and Resilience into Company Policies and Practices
-=============================================================================================
 
 Incorporating positive mindsets and resilience into company policies and practices is essential for creating a workplace culture that supports employee well-being, engagement, and success. In this chapter, we'll explore the importance of incorporating positive mindsets and resilience into company policies and practices, as well as techniques for doing so.
 

@@ -1,5 +1,3 @@
-Strategies for developing a growth mindset among team members
-=====================================================================================================
 
 Developing a growth mindset among team members is essential for building a resilient workplace culture. In this chapter, we'll explore strategies for fostering a growth mindset among team members.
 

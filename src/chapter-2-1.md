@@ -1,5 +1,3 @@
-Definition of positive mindsets
-===========================================================================
 
 Positive mindsets are mental attitudes that influence how individuals perceive and interpret situations. These attitudes are characterized by optimism, resilience, and the belief that challenges can be overcome. Individuals with positive mindsets tend to focus on solutions rather than problems, and view failures as opportunities for growth.
 

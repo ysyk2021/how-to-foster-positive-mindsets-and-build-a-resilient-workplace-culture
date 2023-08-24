@@ -1,5 +1,3 @@
-Importance of empathy and compassion in fostering a resilient workplace culture
-==============================================================================================================================
 
 Empathy and compassion are essential for building a resilient workplace culture. In this chapter, we'll explore the importance of empathy and compassion in fostering a resilient workplace culture.
 

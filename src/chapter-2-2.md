@@ -1,5 +1,3 @@
-Benefits of positive mindsets for employees and the organization
-============================================================================================================
 
 Positive mindsets play a vital role in fostering a resilient workplace culture. In this chapter, we'll explore what positive mindsets are, and how they can benefit both employees and the organization.
 

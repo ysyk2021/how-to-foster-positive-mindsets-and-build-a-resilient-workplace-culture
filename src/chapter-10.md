@@ -1,5 +1,3 @@
-Chapter 10: Overcoming Obstacles to Building a Resilient Workplace Culture
-==========================================================================
 
 Building a resilient workplace culture is essential for organizations to succeed in today's fast-paced, ever-changing work environment. However, there are several obstacles that can hinder the development of a resilient workplace culture. In this chapter, we'll explore common obstacles and strategies for overcoming them.
 

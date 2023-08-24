@@ -1,5 +1,3 @@
-The importance of fostering positive mindsets and building a resilient workplace culture
-=================================================================================================================
 
 In today's fast-paced, ever-changing work environment, fostering positive mindsets and building a resilient workplace culture is more important than ever. A resilient workplace culture supports employees in adapting to change, overcoming challenges, and achieving their goals. It also promotes well-being, engagement, and job satisfaction.
 

@@ -1,5 +1,3 @@
-Chapter 5: Building Resilience and Coping with Challenges
-=========================================================
 
 Building resilience and coping with challenges is essential for success in the workplace. In this chapter, we'll explore an overview of building resilience and coping with challenges in the workplace, as well as strategies for building resilience and managing stress and adversity.
 

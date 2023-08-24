@@ -1,5 +1,3 @@
-Tracking progress and celebrating successes
-=====================================================================================================
 
 Tracking progress and celebrating successes are essential components of implementing lasting change in a workplace culture. In this chapter, we will discuss effective strategies for tracking progress and celebrating successes throughout the implementation process.
 
