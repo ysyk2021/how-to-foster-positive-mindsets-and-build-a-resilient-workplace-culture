@@ -43,4 +43,4 @@ Employees with positive mindsets are more likely to provide excellent customer s
 Conclusion
 ----------
 
-Positive mindsets are essential for building a resilient workplace culture. They offer numerous benefits for both employees and the organization, including improved well-being, increased job satisfaction, better relationships with colleagues, improved productivity, increased innovation, and better customer service. In the next chapter, we'll explore how to cultivate positive mindsets in the workplace.
+Positive mindsets are essential for building a resilient workplace culture. They offer numerous benefits for both employees and the organization, including improved well-being, increased job satisfaction, better relationships with colleagues, improved productivity, increased innovation, and better customer service.

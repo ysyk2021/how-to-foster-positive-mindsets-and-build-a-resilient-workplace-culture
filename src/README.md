@@ -8,3 +8,7 @@ Whether you're a manager looking to improve your leadership skills or an employe
 By following the strategies outlined in this book, you can create a workplace culture that supports employee well-being, encourages growth and development, and promotes resilience in the face of challenges. Remember, creating a positive and resilient workplace culture is an ongoing process, but with the right mindset and commitment, it can be achieved by any organization.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

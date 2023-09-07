@@ -24,4 +24,4 @@ A resilient workplace culture is important because it helps organizations adapt 
 Conclusion
 ----------
 
-Fostering positive mindsets and building a resilient workplace culture is essential for organizations to succeed in today's fast-paced, ever-changing work environment. Positive mindsets promote well-being, engagement, and productivity, while a resilient workplace culture supports employees in adapting to change and achieving their goals. In the next chapters, we'll explore strategies for cultivating positive mindsets and building a resilient workplace culture.
+Fostering positive mindsets and building a resilient workplace culture is essential for organizations to succeed in today's fast-paced, ever-changing work environment. Positive mindsets promote well-being, engagement, and productivity, while a resilient workplace culture supports employees in adapting to change and achieving their goals.
