@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Building Resilience and Managing Stress and Adversity
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Resilience is a crucial trait in navigating the challenges and uncertainties of the workplace. In this chapter, we will explore strategies for building resilience and effectively managing stress and adversity. By implementing these strategies, individuals can develop the skills and mindset needed to bounce back from setbacks, adapt to change, and thrive in a resilient workplace culture.
 

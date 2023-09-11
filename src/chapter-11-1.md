@@ -1,5 +1,4 @@
-Chapter 5: Creating a Roadmap for Fostering Positive Mindsets and Building a Resilient Workplace Culture
-========================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the practical steps involved in creating a roadmap for fostering positive mindsets and building a resilient workplace culture. A well-defined roadmap helps guide organizations in implementing strategies and initiatives that promote resilience and positivity among employees.
 

@@ -1,5 +1,4 @@
-Chapter 4: Overview of Promoting Collaboration and Teamwork in a Resilient Workplace Culture
-============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Collaboration and teamwork are integral components of a resilient workplace culture. In this chapter, we will explore the importance of promoting collaboration and teamwork within organizations and discuss strategies for fostering a collaborative work environment where individuals can thrive and contribute to collective success.
 

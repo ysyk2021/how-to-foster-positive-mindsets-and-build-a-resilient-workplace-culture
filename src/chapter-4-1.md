@@ -1,5 +1,4 @@
-Chapter 8: Importance of Practicing Gratitude and Positivity in the Workplace
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of practicing gratitude and maintaining a positive mindset within the workplace. Cultivating these qualities can have a profound impact on employee well-being, motivation, resilience, and overall workplace culture.
 

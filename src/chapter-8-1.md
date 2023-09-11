@@ -1,5 +1,4 @@
-Chapter 8: Importance of Fostering Innovation and Creativity in a Resilient Workplace Culture
-=============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will discuss the significance of fostering innovation and creativity within the context of building a resilient workplace culture. Embracing innovation and nurturing creativity can have profound benefits for individuals, teams, and organizations as a whole.
 

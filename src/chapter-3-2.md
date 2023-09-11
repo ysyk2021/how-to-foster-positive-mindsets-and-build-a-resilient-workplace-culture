@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Developing a Growth Mindset Among Team Members
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A growth mindset is essential for individuals to embrace challenges, persist in the face of setbacks, and continuously learn and improve. In this chapter, we will explore strategies for developing a growth mindset among team members. By fostering a growth mindset, organizations can create a culture of continuous learning, innovation, and resilience.
 

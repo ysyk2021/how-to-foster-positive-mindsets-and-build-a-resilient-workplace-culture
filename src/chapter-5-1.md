@@ -1,5 +1,4 @@
-Chapter 5: Overview of Building Resilience and Coping with Challenges in the Workplace
-======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Resilience is a crucial trait for individuals to thrive in the face of challenges and uncertainties in the workplace. In this chapter, we will provide an overview of building resilience and coping with challenges. By understanding the principles and strategies of resilience, individuals can develop the necessary skills and mindset to navigate adversity and build a resilient workplace culture.
 

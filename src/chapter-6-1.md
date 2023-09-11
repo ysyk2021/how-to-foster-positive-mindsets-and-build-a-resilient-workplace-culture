@@ -1,5 +1,4 @@
-Chapter 9: Importance of Empathy and Compassion in Fostering a Resilient Workplace Culture
-==========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound significance of empathy and compassion in fostering a resilient workplace culture. These qualities play a crucial role in promoting employee well-being, enhancing teamwork, improving communication, and building strong relationships within the organization.
 

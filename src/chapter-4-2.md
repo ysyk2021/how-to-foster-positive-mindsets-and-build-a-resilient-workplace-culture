@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Cultivating a Positive Work Environment
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques for cultivating a positive work environment. Creating a positive work environment is essential for fostering employee well-being, enhancing productivity, and building a resilient workplace culture. These techniques focus on promoting positivity, fostering strong relationships, and nurturing a supportive and inclusive atmosphere within the organization.
 

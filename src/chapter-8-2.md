@@ -1,5 +1,4 @@
-Chapter 8: Techniques for Promoting Innovation and Creativity Among Team Members
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques and strategies for promoting innovation and creativity among team members within the context of fostering positive mindsets and building a resilient workplace culture. Encouraging innovative thinking and nurturing creativity can lead to breakthroughs, problem-solving, and continuous improvement.
 

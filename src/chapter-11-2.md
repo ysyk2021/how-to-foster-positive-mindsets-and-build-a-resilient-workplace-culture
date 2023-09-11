@@ -1,5 +1,4 @@
-Chapter 7: Tracking Progress and Celebrating Successes
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of tracking progress and celebrating successes in fostering positive mindsets and building a resilient workplace culture. Monitoring the journey and acknowledging achievements is crucial for maintaining motivation and sustaining efforts towards creating an optimal work environment.
 

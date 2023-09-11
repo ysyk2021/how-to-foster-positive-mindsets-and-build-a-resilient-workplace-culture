@@ -1,5 +1,4 @@
-Chapter 3: Definition of Positive Mindsets
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the definition of positive mindsets and their significance in fostering a resilient workplace culture. Understanding what positive mindsets are and how they can be cultivated is essential for individuals and organizations seeking to create a positive and productive work environment.
 

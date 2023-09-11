@@ -1,5 +1,4 @@
-Chapter 7: Techniques for Promoting Empathy and Compassion within the Organization
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques and strategies for fostering empathy and compassion within an organization. Cultivating these qualities among employees can create a supportive and resilient workplace culture where individuals feel valued, understood, and encouraged to collaborate effectively.
 

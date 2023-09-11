@@ -1,5 +1,4 @@
-Chapter 4: Common Obstacles to Building a Resilient Workplace Culture
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a resilient workplace culture is not without its challenges. In this chapter, we will explore some of the common obstacles that organizations face when trying to foster positive mindsets and build resilience. By understanding these obstacles, we can better prepare ourselves to overcome them and create a thriving work environment.
 

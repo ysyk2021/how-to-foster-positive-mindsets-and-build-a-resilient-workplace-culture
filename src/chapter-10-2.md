@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Overcoming Obstacles
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building a resilient workplace culture requires addressing and overcoming various obstacles that can hinder positive mindsets and growth. In this chapter, we will explore strategies for overcoming these obstacles and creating an environment that fosters resilience, collaboration, and continuous improvement.
 

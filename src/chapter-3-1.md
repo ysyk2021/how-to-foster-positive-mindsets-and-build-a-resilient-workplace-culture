@@ -1,5 +1,4 @@
-Chapter 3: Overview of Developing a Growth Mindset
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A growth mindset is a powerful tool for personal and professional development, enabling individuals to embrace challenges, persist in the face of setbacks, and continuously learn and improve. In this chapter, we will provide an overview of developing a growth mindset. By understanding the key principles and strategies, individuals can cultivate a growth mindset and thrive in a resilient workplace culture.
 
